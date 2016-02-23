@@ -1,1 +1,1 @@
-# gate way make travel stay, feel like back home !
+# Gate-way make travel stay, Feel like back home !.
